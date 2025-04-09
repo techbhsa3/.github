@@ -26,7 +26,7 @@ The brainchild of Michelle Garabito, founder of The Lux Nomads, this program lea
 
 ## My First Impressions: The Promise vs. The Price
 
-When I landed on [The Whop page] (https://whop.com/expats-thriving-in-europe-plus/?a=kelechienwere1234), the pitch hit me hard: “Live Like a European for 5 Years.” It’s bold, aspirational, and taps right into my daydreams of cobblestone streets and croissants. The promise of “top-tier visa, tax, and relocation support” sounded like a lifeline for someone like me who’s fumbled through paperwork before.
+When I landed on [The Whop page](https://whop.com/expats-thriving-in-europe-plus/?a=kelechienwere1234), the pitch hit me hard: “Live Like a European for 5 Years.” It’s bold, aspirational, and taps right into my daydreams of cobblestone streets and croissants. The promise of “top-tier visa, tax, and relocation support” sounded like a lifeline for someone like me who’s fumbled through paperwork before.
 
 But then I saw the cost: $6,500 a month for 12 months, plus a $7,000 upfront fee. That’s $85,000 total. My jaw dropped. I’ve hired lawyers for less! Still, I kept an open mind—premium services often come with premium price tags. I needed to know what I’d get for that investment.
 
